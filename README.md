@@ -3,6 +3,7 @@
 - 🌱 I’m currently learning Batch
 - 💞️ I’m looking to collaborate on Batch
 - 📫 How to reach me Discored: @COMMANDer#0432
+- [Text](https://www.google.com/)
 - EEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEEE
 <!---
 ItsCOMMANDer/ItsCOMMANDer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
